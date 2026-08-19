@@ -8,7 +8,7 @@ Welcome to the official repository for **PG Gaming Empire**! Here you will find 
 
 * 📥 **Custom Player File applying:** [https://youtube.com/@pg.gaming.empire?si=ryxoJVaYWnESSwPP
 * 📢 **Telegram Channel (For Updates & Next Form):** [https://t.me/viratgaming18]
-* 💬 **WhatsApp Channel:** [Jhttps://whatsapp.com/channel/0029VbBei286LwHk5eIBqn1v]
+* 💬 **WhatsApp Channel:** [https://whatsapp.com/channel/0029VbBei286LwHk5eIBqn1v]
 
 ---
 
